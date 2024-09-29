@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @OriAde-E
-- 👀 I’m interested in workijg hand in hand to create 
+- 👀 I’m interested in working hand in hand to create 
 - 🌱 nice to meet ya 
 - 💞️ I’m looking to collaborate 
 
